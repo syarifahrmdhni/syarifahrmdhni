@@ -1,4 +1,4 @@
-### Belum ada isinya gais 👾
+### Apesi liat-liat 👾
 
 <!--
 **syarifahrmdhni/syarifahrmdhni** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
